@@ -9,7 +9,7 @@ If you need help, found a bug, or want to request a feature, you're in the right
 
 If you are experiencing issues or have questions, please email:
 
-**ekeneakuneme@gmail.com**
+**jideoforekene42@gmail.com**
 
 We typically reply within **24–48 hours**.
 
